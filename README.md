@@ -1,1 +1,1 @@
-# rsschool-cv
+https://nepricasaemo.github.io/rsschool-cv/cv
